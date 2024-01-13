@@ -1,0 +1,1 @@
+# L-gicadeprogramaci-n-Ejercicio2-Tipti-Suplentes
